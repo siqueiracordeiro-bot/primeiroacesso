@@ -7,6 +7,8 @@
 
 
 ## Você pode entrar comigo pelo 📧🤗
+siqueira.cordeiro@escola.pr.gov.br
+
 
 
 
