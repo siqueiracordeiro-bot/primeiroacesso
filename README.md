@@ -1,4 +1,4 @@
-### Olá esse é o meu perfil,
+### Olá esse é o meu perfil, sou novato na programação e robótica ♥️
 - Meu nome e Gustavo Siqueira Cordeiro
 - Trabalho na empresa [Youtube](https://www.youtube.com/)
 - Eu faço vlogs diariamente
