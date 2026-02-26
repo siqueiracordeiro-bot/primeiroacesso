@@ -6,7 +6,7 @@
 - Gosto de assistir jogos na [ge.tv](https://ge.globo.com/getv/)
 
 
-## Você pode entrar comigo pelo 📧🤗
+## Você pode entrar em contato comigo pelo 📧🤗
 siqueira.cordeiro@escola.pr.gov.br
 
 
