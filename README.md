@@ -15,4 +15,4 @@ siqueira.cordeiro@escola.pr.gov.br
 
 
 
-![](https://media1.tenor.com/m/QnXezShA5jIAAAAC/kirby-yah-made-with-no-knowledge.gif)
+![](https://media.tenor.com/BJBmFCoNltQAAAAM/snoopy-dance-snoopy.gif)
